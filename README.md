@@ -1,2 +1,2 @@
 -  Hi, I’m @waleedbug
-- uhm, hi.. get away
+- and bye?
